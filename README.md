@@ -1,1 +1,1 @@
-1. How to use Hammer [`Watch it`](http://www.youtube.com/watch?v=HVbRUhX2EPo) 
+1. How to use Hammer [`Click`](https://www.google.com/url?sa=i&url=https%3A%2F%2Fv3rmillion.net%2Fshowthread.php%3Ftid%3D188238&psig=AOvVaw0y-cxB4bjKPCcPI8mMMf0Q&ust=1620593181297000&source=images&cd=vfe&ved=0CAIQjRxqFwoTCIitxpv6uvACFQAAAAAdAAAAABBH) 
